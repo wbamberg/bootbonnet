@@ -1,12 +1,10 @@
 ---
 layout: home
-title: A simple starter kit for Eleventy
-postsHeading: Latest posts
+title: A rallying point for all the members of me
 archiveButtonText: See all posts
-metaDesc: 'Hylia is a lightweight Eleventy starter kit to help you to create your own blog or personal website.'
 socialImage: ''
 ---
 
-Hylia is a lightweight [Eleventy](https://11ty.io) starter kit with [Netlify CMS](https://www.netlifycms.org/) pre-configured, so that you can one-click install a progressive, accessible blog in minutes. It also gives you a well organised starting point to extend yourself. It’s by [Andy Bell](https://twitter.com/hankchizljaw) and [friends](https://github.com/aarongustafson/hylia/graphs/contributors).
+<q>So breakfast is a useful thing, a rallying point for all the members of me. We all sit together at the table by the window to start the day off. My face comes along as well. Breakfast is always the same, perfectly reliable, no decisions, no conflicts: orange juice, muesli, a three-minute boiled egg, a slice of buttered toast, coffee that I grind myself.</q>
 
-Get started now by [deploying Hylia to Netlify.](https://app.netlify.com/start/deploy?repository=https://github.com/hankchizljaw/hylia&stack=cms)
+<p>— Russell Hoban, <cite>Turtle Diary</cite></p>

@@ -34,19 +34,11 @@ Hylia version 0.7.0 features:
 📄 Documentation site  
 💅 Proper Sass documentation  
 ✍️ Proper CMS documentation  
-🖼 A facility for you to be able to add your logo / branding  
+🖼 A facility for you to be able to add your logo / branding
 
 ---
 
 ## Getting started
-
-### Method one: One-Click Deploy to Netlify
-
-You can [deploy Hylia to Netlify with one click][deploy-to-netlify] and you’ll be up and running in minutes!
-
-[![Deploy to Netlify](https://www.netlify.com/img/deploy/button.svg)][deploy-to-netlify]
-
-I recorded a quick start video of me deploying Hylia to Netlify and getting the CMS set up. [Check it out here](https://youtu.be/0hM_0BH-Y_A).
 
 ### Method two: Clone / Fork
 
@@ -80,21 +72,6 @@ npm run sass:process
 ```bash
 npm run sass:tokens
 ```
-
-## Getting started with the CMS
-
-Before you can use the CMS, you need to do some config in Netlify. Luckily they provide a [very handy guide to get started](https://www.netlify.com/docs/identity/).
-
-In short, though:
-
-- Once you’ve set up the site on Netlify, go to “Settings” > “Identity” and enable Identity
-- Scroll down to the “Git Gateway” area, click “Enable Git Gateway” and follow the steps
-- Click the “Identity” tab at the top
-- Once you’ve enabled identity, click “Invite Users”
-- Check the invite link in your inbox and click the link in the email that’s sent to you
-- Set a password in the popup box
-- Go to `/admin` on your site and login
-- You’re in and ready to edit your content!
 
 ## Design Tokens and Styleguide
 
@@ -179,21 +156,6 @@ Grabs the property and value of one of the `$stalfos-config utilities` that the 
 #### `media-query($key)`
 
 Pass in the key of one of your breakpoints set in `$stalfos-config['breakpoints']` and this mixin will generate the `@media` query with your configured value.
-
-## CMS
-
-Hylia has [Netlify CMS](https://www.netlifycms.org/) pre-configured as standard. You can customise the configuration by editing [`src/admin/config.yml`](https://github.com/hankchizljaw/hylia/blob/master/src/admin/config.yml).
-
-### Content that you can edit
-
-The basic CMS setup allows you to edit the following:
-
-- **Home page**: Edit the content on your homepage
-- **Posts**: Create and edit blog posts
-- **Generic pages**: Create generic pages that use a similar layout to posts
-- **Global site data**: Various bits of global site data such as your url, title, posts per page and author details
-- **Navigation**: Edit your primary navigation items
-- **Theme**: Edit the design tokens that power the site’s theme
 
 ## Get involved
 
