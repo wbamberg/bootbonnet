@@ -1,9 +1,9 @@
 ---
 title: The grimy grocery stores of Commercial Drive
-date: '2024-02-28'
+date: '2024-02-29'
 ---
 
-We've been living on Commercial Drive for more than 12 years, and almost every day — and often more than once a day — I've ventured out, accompanied by Nerdy, to buy some groceries from the local stores. When we first came here I was taken aback by just how grimy these stores were: I don't think they have got any cleaner, but I have probably grown accustomed to the grime.
+We've been living on Commercial Drive for more than 12 years, and almost every day — and often more than once a day — I've ventured out, accompanied by [Nerdy](../nerdy), to buy some groceries from the local stores. When we first came here I was taken aback by just how grimy these stores were: I don't think they have got any cleaner, but I have probably grown accustomed to the grime.
 
 So this is a quick tour of notable grocery stores along a short stretch of Commercial Drive.
 
@@ -19,4 +19,8 @@ Next up is Aaron A Aardvark's, AKA the Triple A Market. This is _substantially g
 
 ![Aaron A's seasonal mushrooms](/images/aaron-a-mushrooms.jpeg)
 
-It's a much more ramshackle operation than Santa B, and as far as I can tell only 4 people run the whole show, including Joe, who apparently played for the Serie A club [Sampdoria](https://en.wikipedia.org/wiki/UC_Sampdoria) in his youth (which was probably the 80s). There was also this episode a few years ago where my neighbour's son left his Thomas the Tank Engine in there, and someone took it. Joe felt personally responsible for this and I became this kind of reluctant go-between, with Joe giving me lengthy updates every time I came in about his latest efforts to retrieve the thing. I had to stop shopping there for a while.
+It's a much more ramshackle operation than Santa B, and as far as I can tell only 4 people run the whole show, including Joe, who apparently played for the Serie A club [Sampdoria](https://en.wikipedia.org/wiki/UC_Sampdoria) in his youth. There was also this episode a few years ago in which my neighbour's son left his Thomas the Tank Engine in there, and someone took it. Joe felt personally responsible for this and I became this kind of reluctant go-between, with Joe giving me lengthy updates every time I came in about his latest efforts to retrieve the thing. I had to stop shopping there for a while.
+
+![Super V](/images/super-v.jpeg)
+
+Finally we'll look at Super-V, which changed hands recently and was rebranded to Freshmart, but is otherwise identical. This is a much smoother and more corporate operation, definitely less grimy than the other two. Despite this, to me it always has a bit of an edge, a feeling of barely suppressed rage and violence bubbling beneath the surface. The great thing about Super-V, apart from its inexplicably good bread section, is that it's open 24 hours a day, every day. It's practically a Christmas tradition for me to come here to buy something I forgot to get before.
