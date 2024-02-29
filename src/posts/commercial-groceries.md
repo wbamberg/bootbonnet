@@ -15,7 +15,7 @@ The people who ran it were lovely, and when they sold the place last year there 
 
 ![Aaron A](/images/aaron-a.jpeg)
 
-Next up is Aaron A Aardvark's, AKA the Triple A Market. This is _substantially grimier_ store, and in fact I would recommend you not look too closely when shopping, except at the actual produce you buy, which you should forensically examine. But I go here a lot, because they have some great stuff. Especially, for some reason they always have the best kale, and in the fall people bring sacks of pine mushrooms and chanterelles that they picked in the local woods:
+Next up is Aaron A Aardvark's, AKA the Triple A Market. This is a _substantially grimier_ store, and in fact I would recommend you not look too closely when shopping, except at the actual produce you buy, which you should forensically examine. But I go here a lot, because they have some great stuff. Especially, for some reason they always have the best kale, and in the fall people bring sacks of pine mushrooms and chanterelles that they picked in the local woods:
 
 ![Aaron A's seasonal mushrooms](/images/aaron-a-mushrooms.jpeg)
 
