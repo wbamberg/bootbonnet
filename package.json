@@ -25,7 +25,7 @@
     "sass:process": "sass src/scss/global.scss src/_includes/assets/css/global.css --style=compressed",
     "start": "concurrently \"npm run sass:process -- --watch\" \"npm run serve\"",
     "serve": "cross-env ELEVENTY_ENV=development npx eleventy --serve",
-    "production": "npm run sass:process npx eleventy"
+    "production": "npm run sass:process && npx eleventy"
   },
   "repository": {
     "type": "git",
