@@ -5,7 +5,7 @@ date: '2024-02-28'
 
 This is Nerdy:
 
-![Nerdy the shopping bag](/images/nerdy.jpeg)
+![Nerdy the shopping bag](/images/nerdy/nerdy.jpeg)
 
 I was given it at the [OOPSLA](https://en.wikipedia.org/wiki/OOPSLA) conference, which took place in Vancouver in 2004, so long ago that OOP still seemed like the future, or at least the present.
 
