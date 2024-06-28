@@ -15,8 +15,6 @@ Next day was the heart of the route, the longest, most difficult, but most inter
 
 I got started at about 9am. After a climb out of the campground on Humpback Road, there's a gentle couple of kilometres, then after the suspension bridge it really starts going up.
 
-![Suspension bridge](/images/cowichan-8/suspension-bridge.jpeg)
-
 The steepest bit is the first bit, and I was fully prepared to push for about 300 metres, which I did. After that things are a lot more reasonable, and I climbed through the forest. At first I yelled out "hey bear", then started talking to them, then eventually singing Christmas carols at them. It seemed to work as no bears came near me. At about 10.30 a cyclist passed me while I was taking pictures of columbines. He was the only person I saw for about 3 hours.
 
 The top was lovely, with more open country, Scotch broom in flower, and windy trails.
@@ -34,3 +32,31 @@ A little less than an hour grinding along the rail trail and I was at the Glenor
 Next stop, Lake Cowichan. The trail follows the south side of Cowichan River and is very beautiful, lush mossy rainforest with the sunshine filtering through.
 
 ![Glenora Trail](/images/cowichan-8/glenora-trail.jpeg)
+
+We cross the Cowichan River, and back again on the 70.2 mile trestle:
+
+![70.2 Mile Trestle](/images/cowichan-8/70.2-mile-trestle.jpeg)
+
+And into Lake Cowichan for a miraculously reviving milkshake at J&V's diner:
+
+![J&V's diner](/images/cowichan-8/J-and-Vs.jpeg)
+
+Then back along the north side of the river, and I arrived at the Stoltz Pool campground just before 7. The camp operator was as lovely as advertised, and the walk-in sites are beautiful, so I spent a peaceful evening watching nighthawks swirling over the trees that line the river.
+
+![At camp in Stoltz Pool](/images/cowichan-8/stoltz-camp.jpeg)
+
+Day 3 was for heading home. On the way out I was talking to an old guy cruising aroung the campground on a mobility scooter. He asked where I was going that day, and I told him Swartz Bay, and that if I was lucky my wife would pick my up at Tsawwassen. "Well", he said, "it's the least she could do".
+
+I avoided climbing back up to the trail by riding the road into Duncan. Was going to go to a cafe for lunch but it turned out the farmer's market was on that day and it is huge. I bought strawberries, and a falafel burger from a food truck called Digable Roots.
+
+![Strawberries](/images/cowichan-8/strawberries.jpeg)
+
+Only three strawberries bounced out of the basket. I then rode back to the Kinsol Trestle where I ate the burger, and it was AMAZING.
+
+Boring ferry chat. There are two ferries you have to catch: the big one from Swartz Bay to Tsawwassen, and before that, the little one from Mill Bay to Brentwood Bay. There were Swartz Bay ferries at 4pm, 5pm, and 7pm. I really didn't want to be on the 7pm ferry. There were Mill Bay ferries at 1.50 and 3pm. If I caught the 3pm, it which would probably (maybe?) get me onto the 5pm ferry. But if it was late or I was too slow, it meant I'd have to wait 2 hours for the next one at 7. So I decided I'd really like to get previous one, at 1.50pm. And having spent too long at the farmer's, I had to hammer it (by my very slow standards), which I then did.
+
+This was a shame as it meant I couldn't get coffee at [Shawnigan House](https://www.shawnigancoffee.com/), or baked treats next door at Oma's bakery, or more coffee at Bru-Go's at the Mill Bay shopping centre. And most of the riding was on roads. I made it to the 1.50 ferry with time to spare, and an old guy with an ebike twisted the knife by telling me he'd just come over from Brentwood to get coffee at Bru-Go's and it was great.
+
+![Mill Bay Ferry](/images/cowichan-8/mill-bay-ferry.jpeg)
+
+Still, the ferry took longer than I expected, and I didn't have much time (by my very slow standards) to get to Swartz Bay in time. So it was hammer time again, and I was just thinking I'd made up enough time to relax a bit, that I got lost in Sidney. In the end I made it to the ferry with 10 minutes or so to spare. Andrea ansd Greta were there to meet me, and I was done.
