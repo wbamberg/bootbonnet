@@ -45,7 +45,7 @@ Then back along the north side of the river, and I arrived at the Stoltz Pool ca
 
 ![At camp in Stoltz Pool](/images/cowichan-8/stoltz-camp.jpeg)
 
-Day 3 was for heading home. On the way out I was talking to an old guy cruising aroung the campground on a mobility scooter. He asked where I was going that day, and I told him Swartz Bay, and that if I was lucky my wife would pick my up at Tsawwassen. "Well", he said, "it's the least she could do".
+Day 3 was for heading home. On the way out I was talking to an old guy cruising aroung the campground on a mobility scooter. He asked where I was going that day, and I told him Swartz Bay, and that if I was lucky my wife would pick me up at Tsawwassen. "Well", he said, "it's the least she could do".
 
 I avoided climbing back up to the trail by riding the road into Duncan. Was going to go to a cafe for lunch but it turned out the farmer's market was on that day and it is huge. I bought strawberries, and a falafel burger from a food truck called Digable Roots.
 
@@ -53,10 +53,10 @@ I avoided climbing back up to the trail by riding the road into Duncan. Was goin
 
 Only three strawberries bounced out of the basket. I then rode back to the Kinsol Trestle where I ate the burger, and it was AMAZING.
 
-Boring ferry chat. There are two ferries you have to catch: the big one from Swartz Bay to Tsawwassen, and before that, the little one from Mill Bay to Brentwood Bay. There were Swartz Bay ferries at 4pm, 5pm, and 7pm. I really didn't want to be on the 7pm ferry. There were Mill Bay ferries at 1.50 and 3pm. If I caught the 3pm, it which would probably (maybe?) get me onto the 5pm ferry. But if it was late or I was too slow, it meant I'd have to wait 2 hours for the next one at 7. So I decided I'd really like to get previous one, at 1.50pm. And having spent too long at the farmer's, I had to hammer it (by my very slow standards), which I then did.
+Boring ferry chat. There are two ferries you have to catch: the big one from Swartz Bay to Tsawwassen, and before that, the little one from Mill Bay to Brentwood Bay. There were Swartz Bay ferries at 4pm, 5pm, and 7pm. I really didn't want to be on the 7pm ferry. There were Mill Bay ferries at 1.50 and 3pm. If I caught the 3pm, it would probably (maybe?) get me onto the 5pm ferry. But if it was late or I was too slow, it meant I'd have to wait 2 hours for the next one at 7. So I decided I'd really like to get the previous one, at 1.50pm. And having spent too long at the farmer's, I had to hammer it (by my very slow standards), which I then did.
 
 This was a shame as it meant I couldn't get coffee at [Shawnigan House](https://www.shawnigancoffee.com/), or baked treats next door at Oma's bakery, or more coffee at Bru-Go's at the Mill Bay shopping centre. And most of the riding was on roads. I made it to the 1.50 ferry with time to spare, and an old guy with an ebike twisted the knife by telling me he'd just come over from Brentwood to get coffee at Bru-Go's and it was great.
 
 ![Mill Bay Ferry](/images/cowichan-8/mill-bay-ferry.jpeg)
 
-Still, the ferry took longer than I expected, and I didn't have much time (by my very slow standards) to get to Swartz Bay in time. So it was hammer time again, and I was just thinking I'd made up enough time to relax a bit, that I got lost in Sidney. In the end I made it to the ferry with 10 minutes or so to spare. Andrea ansd Greta were there to meet me, and I was done.
+Still, the ferry took longer than I expected, and I didn't have long to get to Swartz Bay for the 4pm ferry. So it was hammer time again, and I was just thinking I'd made up enough time to relax a bit, that I got lost in Sidney. In the end I made it to the ferry with 10 minutes or so to spare. Andrea and Greta were in Tsawwassen to meet me, and I was done.
