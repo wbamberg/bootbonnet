@@ -44,6 +44,8 @@ img {
   height: auto;
   display: block;
   margin: auto;
+  max-height: 100vh;
+  object-fit: contain;
 }
 
 :focus {
