@@ -55,4 +55,4 @@ In the morning, we wake up in a cloud and saddle up to hike back down.
 
 On the way, Greta keeps me entertained with stories about the [Warrior cats](https://warriorcats.com/), with special attention paid to Brightheart. The slog back through the trees seems to take forever, like it always does, but we make it back in the end.
 
-Good job, Greta! I'm grateful to all the people who've hiked the trails with me in the past, and so happy to be have shared this one with you.
+Good job, Greta! I'm grateful to all the people who've hiked the trails with me in the past, and happy to be have shared this one with you.
