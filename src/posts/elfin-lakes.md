@@ -53,6 +53,6 @@ In the morning, we wake up in a cloud and saddle up to hike back down.
 
 ![Next morning](/images/elfin-lakes/next-morning.jpeg)
 
-On the way, Greta keeps me entertained with stories about the [Warrior cats](https://warriors.fandom.com/wiki/Warriors_Wiki), with special attention paid to Brightheart. The slog back through the trees seems to take forever, like it always does, but we make it back in the end.
+On the way, Greta keeps me entertained with stories about the [Warrior cats](https://warriors.fandom.com/wiki/Warriors_Wiki), with special attention paid to Brightheart. Going back down through the trees seems to take forever, like it always does, but we get there in the end.
 
-Good job, Greta! I'm grateful to all the people who've hiked the trails with me in the past, and happy to be have shared this one with you.
+Good job, Greta! I'm grateful to all the people who've hiked the trails with me in the past, and happy to have shared this one with you.
