@@ -17,7 +17,7 @@ I don't think there are any hikes here that are so accessible but so beautiful. 
 
 ![Red Heather toilet](/images/elfin-lakes/red-heather-toilet.jpg)
 
-And here's what it looked like in May 2011:
+And here's what it looked like in April 2011:
 
 ![Red Heather toilet in the snow](/images/elfin-lakes/red-heather-toilet-snow.jpg)
 
