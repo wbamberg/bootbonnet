@@ -31,8 +31,6 @@ Then round the corner and the Mamquam massif floats into view like some deranged
 
 ![Mamquam](/images/elfin-lakes/mamquam-2010-harv.jpeg)
 
-![Mamquam](/images/elfin-lakes/mamquam.jpeg)
-
 And we hike down Paul Ridge.
 
 ![Paul ridge](/images/elfin-lakes/paul-ridge.jpeg)
