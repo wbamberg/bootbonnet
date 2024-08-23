@@ -3,7 +3,9 @@ title: 20 years of Elfin Lakes
 date: '2024-08-23'
 ---
 
-Over 11-12 August, Greta and I camped at Elfin Lakes, in Garibaldi Park. It was the first time either of us have hiked into a campsite, and the first time she's hiked to Elfin Lakes. It's been almost exactly twenty years since the first time I did this hike. It was the first real hike I did after moving here, and I've hiked it at least ten times since, with a whole lot of different people.
+Over 11-12 August, Greta and I camped at Elfin Lakes, in Garibaldi Park. It was the first time either of us have hiked into a campsite, and the first time she's hiked to Elfin Lakes.
+
+It's been almost exactly twenty years since the first time I did this hike. It was the first real hike I did after moving here, and I've hiked it at least ten times since, with a whole lot of different people. So hiking the trail this time, it felt like I was hiking through all the layers of time since I've been here, with the different people I've hiked the mountains with, and it was lovely to be able to add a new layer with Greta.
 
 Here's me and Bill at the lakes in October 2004:
 
@@ -51,4 +53,6 @@ In the morning, we wake up in a cloud and saddle up to hike back down.
 
 ![Next morning](/images/elfin-lakes/next-morning.jpeg)
 
-On the way, Greta keeps me entertained with stories about the Warrior cats, with special attention paid to Brightheart. The slog back through the trees seems to take forever, like it always does, but we make it back in the end. Good job, Greta!
+On the way, Greta keeps me entertained with stories about the [Warrior cats](https://warriorcats.com/), with special attention paid to Brightheart. The slog back through the trees seems to take forever, like it always does, but we make it back in the end.
+
+Good job, Greta! I'm grateful to all the people who've hiked the trails with me in the past, and so happy to be sharing them with you.
