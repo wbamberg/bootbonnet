@@ -49,7 +49,7 @@ Only this time it is different, because we don't have to go back. We put the ten
 
 ![Sunset](/images/elfin-lakes/sunset.jpeg)
 
-In the morning, we wake up in a cloud and saddle up to hike back down.
+In the morning, we wake up in a cloud and get ready to hike back down.
 
 ![Next morning](/images/elfin-lakes/next-morning.jpeg)
 
