@@ -21,7 +21,7 @@ And here's what it looked like in May 2011:
 
 ![Red Heather toilet in the snow](/images/elfin-lakes/red-heather-toilet-snow.jpg)
 
-Then as we get out of the trees the Tantalus mountains sneak up behind us, and we have the long airy walk along the ridge with Atwell Peak keeping us company and the whole sweep across to Opal Cone.
+Then as we get out of the trees the Tantalus mountains sneak up behind us, and we have the long airy walk along the ridge with Atwell Peak keeping us company and the sweep across to Opal Cone.
 
 ![Atwell Peak](/images/elfin-lakes/atwell-peak.jpeg)
 
