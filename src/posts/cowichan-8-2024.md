@@ -15,7 +15,7 @@ Next day was the heart of the route, the longest, most difficult, but most inter
 
 I got started at about 9am. After a climb out of the campground on Humpback Road, there's a gentle couple of kilometres, then after the suspension bridge it really starts going up.
 
-The steepest bit is the first bit, and I was fully prepared to push for about 300 metres, which I did. After that things are a lot more reasonable, and I climbed through the forest. At first I yelled out "hey bear", then started talking to them, then eventually singing Christmas carols at them. It seemed to work as no bears came near me. At about 10.30 a cyclist passed me while I was taking pictures of columbines. He was the only person I saw for about 3 hours.
+The steepest bit is the first bit, and I was fully prepared to push for about 300 metres, which I did. After that things are a lot more reasonable, and I climbed through the forest. At first I yelled out "hey bear", then started talking to them, then eventually singing Christmas carols at them. It seemed to work as no bears came near me. At about 10:30 a cyclist passed me while I was taking pictures of columbines. He was the only person I saw for about 3 hours.
 
 The top was lovely, with more open country, Scotch broom in flower, and windy trails.
 
