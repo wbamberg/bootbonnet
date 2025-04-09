@@ -59,4 +59,4 @@ This was a shame as it meant I couldn't get coffee at [Shawnigan House](https://
 
 ![Mill Bay Ferry](/images/cowichan-8/mill-bay-ferry.jpeg)
 
-Still, the ferry took longer than I expected, and I didn't have long to get to Swartz Bay for the 4pm ferry. So it was hammer time again, and I was just thinking I'd made up enough time to relax a bit, that I got lost in Sidney. In the end I made it to the ferry with 10 minutes or so to spare. Andrea and Greta were in Tsawwassen to meet me, and I was done.
+Still, the ferry took longer than I expected, and I didn't have long to get to Swartz Bay for the 4pm ferry. So it was hammer time again, and I was just thinking I'd made up enough time to relax a bit, that I got lost in Sidney. In the end I made it to the ferry with 10 minutes or so to spare. Andrea and G were in Tsawwassen to meet me, and I was done.
