@@ -17,7 +17,7 @@ We met a person giving out brownies, bananas, and stickers to cyclists for some 
 
 ![Ferry to Gabriola](/images/gabriola-g-vibc/gabriola-ferry.jpeg)
 
-The ferry to Gabriola is short and lovely, and the road to the campground on the other side is st-e-e-e-p but very short. We didn't know which campsites were ours but found some friendly VIBC people (Jesse and Chelsea) who helped us find a spot.
+The ferry to Gabriola is lovely, and the road to the campground on the other side is st-e-e-e-p but very short. We didn't know which campsites were ours but found some friendly VIBC people (Jesse and Chelsea) who helped us find a spot.
 
 ![Evening sunshine](/images/gabriola-g-vibc/evening-sunshine.jpeg)
 
