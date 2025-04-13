@@ -38,3 +38,17 @@ After that it was time to go, so I packed up while G rode laps of the campground
 It would have been good to have more time on the island, but it was a great first bike camp for G. Thanks VIBC, you are awesome.
 
 ![VIBC leaf art](/images/gabriola-g-vibc/thanks-vibc.jpeg)
+
+## G's version
+
+It's been a few months since the bikepacking trip to Gabriola, but I remember it like yesterday. I really hope to go back there someday, perhaps with the VIBC again. It's a beautiful campground, and though I barely survived the STEEP hill up there, I think it was worth it for the scenery.
+
+The beach is not far at all from the campsites, and it's a really nice view during sundown. It has a load of strangely shaped rocks, some like crescent moons, that are perfect for dozing off on! I call this beach "Seal Rocks", because I like to flop around like a seal on them.
+
+Then there was the prize draw, and the VIBC was giving out things like mugs, socks, and coffee. My dad said that it would be very weird if I got coffee. It would be!
+
+During the prize draw, I got to meet Bodhi the Adventure Cat, who was lurking around in the shadows. I watched him for a while.
+
+After that, we went to bed in our tent, and woke up early-ish to pack. My friend from school was there at the campsite too! In the morning, I went over to her campsite to see what she and her friends had made in the woods. It was a secret base, of sorts. Very comfortable.
+
+We left soon after that. The ferry was very nice, but I was glad to be home. Thank you so much, VIBC!
