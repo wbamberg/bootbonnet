@@ -55,7 +55,7 @@ Only three strawberries bounced out of the basket. I then rode back to the Kinso
 
 Boring ferry chat. There are two ferries you have to catch: the big one from Swartz Bay to Tsawwassen, and before that, the little one from Mill Bay to Brentwood Bay. There were Swartz Bay ferries at 4pm, 5pm, and 7pm. I really didn't want to be on the 7pm ferry. There were Mill Bay ferries at 1:50 and 3pm. If I caught the 3pm, it would probably (maybe?) get me onto the 5pm ferry. But if it was late or I was too slow, it meant I'd have to wait 2 hours for the next one at 7. So I decided I'd really like to get the previous one, at 1:50pm. And having spent too long at the farmer's, I had to hammer it (by my very slow standards), which I then did.
 
-This was a shame as it meant I couldn't get coffee at [Shawnigan House](https://www.shawnigancoffee.com/), or baked treats next door at Oma's bakery, or more coffee at Bru-Go's at the Mill Bay shopping centre. And most of the riding was on roads. I made it to the 1:50 ferry with time to spare, and an old guy with an ebike twisted the knife by telling me he'd just come over from Brentwood to get coffee at Bru-Go's and it was great.
+This was a shame as it meant I couldn't get coffee at [Shawnigan House](https://www.shawnigancoffee.com/), or baked treats next door at Oma's bakery, or more coffee at Bru-Go's at the Mill Bay shopping centre. And most of the riding was on roads. I made it to the 1:50 ferry with time to spare, and a guy with an ebike twisted the knife by telling me he'd just come over from Brentwood to get coffee at Bru-Go's and it was great.
 
 ![Mill Bay Ferry](/images/cowichan-8/mill-bay-ferry.jpeg)
 

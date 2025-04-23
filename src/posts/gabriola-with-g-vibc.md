@@ -5,7 +5,7 @@ date: '2025-04-08'
 
 On 29-30 September 2024 G and I went bike camping on Gabriola Island with the adorable folk of the [Vancouver Island Bikepack Collective (VIBC)](https://www.vanislandbikepack.com/).
 
-The week before I was at [TPAC](https://www.w3.org/2024/09/TPAC/) in Anaheim and didn't get back till the Saturday: we'd hoped to go straight out there on the Saturday and spend two nights there, but it was too much of a quick turnaround, so I slept in my bed on the Saturday night and we headed out the next day. I took the Surly for extra carrying capacity in 4 panniers. G took the [Loophole](https://www.instagram.com/loopholebags/) handlebar bag containing snacks and her backpack containing clothes. We also brought ramen, oatmeal, tortillas, peanut butter and Made Good cookies.
+The week before I was at [TPAC](https://www.w3.org/2024/09/TPAC/) in Anaheim and didn't get back till the Saturday: we'd hoped to go straight out to Gabriola on the Saturday and spend two nights there, but it was too much of a quick turnaround, so I slept in my bed on the Saturday night and we headed out the next day. I took the Surly for extra carrying capacity in 4 panniers. G took the [Loophole](https://www.instagram.com/loopholebags/) handlebar bag containing snacks and her backpack containing clothes. We also brought ramen, oatmeal, tortillas, peanut butter and Made Good cookies.
 
 We missed the ferry we wanted to get cos of traffic on the highway, so we were even later than we'd planned. G got juice on the ferry and for some reason stuck "Made With Real Fruit" stickers on her face. Maybe because she's made with real fruit?
 
