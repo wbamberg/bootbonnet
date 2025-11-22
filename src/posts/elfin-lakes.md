@@ -51,6 +51,6 @@ In the morning, we're inside a cloud. We saddle up for the hike back.
 
 ![Next morning](/images/elfin-lakes/next-morning.jpeg)
 
-On the way, G keeps me entertained with stories about the [Warrior cats](https://warriors.fandom.com/wiki/Warriors_Wiki), with special attention paid to Brightheart. Going back down through the trees seems to take forever, like it always does, but we get there in the end.
+On the way, G keeps me entertained with stories about the [Warrior Cats](https://warriors.fandom.com/wiki/Warriors_Wiki), with special attention paid to Brightheart. Going back down through the trees seems to take forever, like it always does, but we get there in the end.
 
 Good job, G! I'm grateful to all the people who've hiked the trails with me in the past, and happy to have shared this one with you.
