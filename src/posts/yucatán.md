@@ -117,7 +117,7 @@ The children voted for pool over laguna. We found a lovely katydid at the pool a
 
 We tried to go back to El Valiente but it was closed, so we went back to La oaxaqueña, and this time the mesero was very nice, and we got much better food. I had the mole, A had the tlayuda again, and the children had tacos.
 
-On the way back through the square we bought a sombrero fridge magnet at G's insistence.
+On the way back through the square we bought a sombrero fridge magnet at G's recommendation.
 
 ## Monday
 
@@ -126,3 +126,5 @@ Heading home. We had breakfast at the hotel, less said the better. On the road b
 Then we went back to Luz to get our bags, and took a taxi to the airport. Carlos the lovely Aeroméxico check-in agent told us our Spanish names. A's is the same, only said in a more fancy way. In a horrifying aside, Guy Fieri made an appearance at the airport.
 
 CDMX was full of people drilling and hammering things, but we got on our flight back to YVR at 1.25 am, and emerged into the darkness, pouring rain, and bone-chilling cold at about 6.30 on Tuesday morning.
+
+Although I've been to Mexico before a couple of times, I fell in love with it a bit on this trip. G said, it's so colourful, so full of life, and the people are so warm and kind.
