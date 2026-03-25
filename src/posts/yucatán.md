@@ -3,7 +3,7 @@ title: Yucatán
 date: '2026-03-24'
 ---
 
-We flew into Mérida via Mexico City, and brought The Ambassador (tm) to eat in Mexico City airport (CDMX), so as to avoid the apparently horrible food options there. This meant I got an early outing for my experimental Spanish, explaining to the people that _tenemos un poco de comida, y no sabemos si esta permitido_ or something. Anyway we had a bad-tempered Ambo there, but got to Mérida by 8pm, and had a fun taxi ride with a chatty driver. Arrived at Luz en Yucatán, slurped life-giving pot noodles in the hotel room, and went to bed.
+We flew into Mérida via Mexico City, and brought The Ambassador™ to eat in Mexico City airport (CDMX), so as to avoid the apparently horrible food options there. This meant I got an early outing for my experimental Spanish, explaining to the people that _tenemos un poco de comida, y no sabemos si esta permitido_ or something. Anyway we had a bad-tempered Ambo there, but got to Mérida by 8pm, and had a fun taxi ride with a chatty driver. Arrived at Luz en Yucatán, slurped life-giving pot noodles in the hotel room, and went to bed.
 
 ## Saturday
 
@@ -11,7 +11,9 @@ Next day was for light exploring. Hotel breakfast was _incluido_, so we ate that
 
 Tejon Rojo was full of lovely stuff and an equally lovely man working there who was happy to chat. I bought a t-shirt featuring a Turquoise-Browed Mot-Mot, and he told us a strange story about trying to rescue a lot of baby spiders of a deadly variety, without getting bitten.
 
-By that time it was HOT so we went to look for some lunch at Ramiro Cochina, which was nice, but not child-friendly food. Afterwards, we went back to the hotel and the children wallowed in the pool for a few hours. Then we went out for pizza, where my pizza took ages to come, then as soon as it did, the AC dumped a load of water all over it. The man was extremely apologetic. Afterwards we went to the Noche Mexicana, for some dancing and singing (that is, watching other people dancing and singing).
+By that time it was HOT so we went to look for some lunch at Ramiro Cochina, which was nice, but not child-friendly food. Afterwards, we went back to the hotel and the children wallowed in the pool. The pool was covered with little square blue tiles which were starting to come off, and the children were diving to collect them. E promised that they were not in fact "encouraging" the tiles to come off. Then a huge thunderstorm started, so we sheltered in the hotel room for a couple of hours, and the children watched videos on the iPad.
+
+Once the rain eased off we went out for pizza, where my pizza took ages to come, then as soon as it did, the AC dumped a load of water all over it. The waiter was extremely apologetic and called me _caballero_. Afterwards we went to the Noche Mexicana, for some dancing and singing (that is, watching other people dancing and singing).
 
 ## Sunday
 
@@ -21,19 +23,19 @@ Again, by the time we were done, we were HOT, and this time decided to try baked
 
 In the evening we strolled down to the Plaza Grande, watched the parrots swirling around and shrieking, saw the music and stalls, failed to find las letras (they had been apparently removed for maintenance). On the way back, someone was giving a no-holds-barred karaoke performance of A-Ha's "Take On Me", from inside his shop but with the speaker out on the street, where a small but enthusiastic crowd had formed. Unfortunately by the time we got to the shop he had collapsed, either from emotion or sheer physical effort, and was slumped on the floor in a pool of sweat.
 
-Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Parque de Santa Lucia for some rather excellent music before bed.
+Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Parque de Santa Lucia for some fantastic music before bed.
 
 ## Monday
 
-Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steve at Easy Way told us not to drive to Colombia. His car felt... loose, as if parts of it might come unattached, given enough vibration.
+Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steven at Easy Way told us not to drive to Colombia. His car felt... loose, as if parts of it might come unattached, given enough vibration.
 
 Still, the Guardianes de los Manglares de Dzinintún didn't mind us being late, they were just hanging out. We peed in these extremely rustic toilets in very dilapidated palapas that were infested with giant iguanas, this will be important later on.
 
-Gliding through the mangroves was very peaceful. We saw an American Redstart, a Tricolored Heron, several pufferfish. Most excitingly a female crocodile guarding her babies. She was just lurking in the water looking menacing. Our guide told us that a few weeks ago someone was here with their dog in the canoe, and the dog jumped in to attack the baby crocs, and the daddy croc ate the dog. Scenes.
+Gliding through the mangroves was very peaceful. We saw an American Redstart, a Tricolored Heron, several pufferfish. Most excitingly, a female crocodile guarding her babies. She was just lurking in the water looking menacing. Our guide told us that a few weeks ago someone was here with their dog in the canoe, and the dog jumped in to attack the baby crocs, and the daddy croc ate the dog. Scenes.
 
-Then out of the mangroves into the lagoon, where a frigatebird kept us company for a while. And a little walk to see the flamingoes, along with pelicans, egrets, and wood storks.
+Then out of the mangroves into the lagoon, where a frigatebird kept us company for a while. And a little walk to see the flamingos, along with pelicans, egrets, and wood storks.
 
-After the tour we ate pastries from Nuup while some hopeful perros hung around. Elsa went for a pee and while she was peeing a giant iguana crashed through the roof of the palapa.
+After the tour we ate pastries from Nuup while some hopeful _perros_ hung around. E went for a pee and while she was peeing a giant iguana crashed through the roof of the palapa.
 
 Because we made a late start, we decided to head straight back to Mérida, for a big shop at the Soriana, in preparation for phase 2: Xpujil, in Campeche state. Everyone we talked to about where we were going next thought we meant Campeche City, and in the end I gave up and pretended that was actually where we were going. Anyway, we bought a ton of food at Soriana. There was a confusing system for buying pastries where you had to fish them out of the cabinets and put on a tray, having first chosen the least grungy tray, then take the tray to an employee who puts them into paper bags according to some obscure criteria. We also bought enough pasta for 2 nights. This will be important later on.
 
@@ -43,8 +45,51 @@ Back at the hotel, the children had a final wallow, then we had goblin mode supp
 
 The señora serving the hotel breakfast was very excited to hear that we'd be going to Campeche City today, and told us all about it.
 
-shocks on ew compared to taxi
-tope higglers, tope canary, reverse tope, reverse tope canary
-jaguar, sacrifices
+We actually had a long drive to Xpujil: there were two possible routes, the more direct one via Hopelchen, on tiny roads, and a longer one via Bacalar, that keeps to the bigger roads. On the advice of Anabel at Visit Calakmul, we took the longer route, although the other route did look interesting.
 
+Anyway: driving out of Mérida was a bit nerve-shredding, and we got lost for a while, but once things settled down it was reasonably fun. Good, straight, roads, polite drivers, beautiful countryside, interesting small towns. One of A's jobs was to watch for topes, and despite what people say, at least on this route the topes were really well marked and you'd have to be paying no attention in order to miss them. Still, it is helpful to have a _tope canary_: a car in front that you can watch to get an additional warning. Also of interest are _tope higglers_, who hang around at the roadside and take advantage of you slowing down to try to sell you coconuts or pineapples or... chopping boards?
+
+The drive was further enlivened by short but very intense rain showers, during which we could see almost nothing.
+
+We stopped in José María Morelos for pees, and in Bacalar for Soriana pastries, and got to Casa Ka'an at about 5.30. The cabin was clean, spacious, and comfortable. Pasta for supper: we couldn't find any salt, and E complained righteously. We had an early night...
+
+## Wednesday
+
+...because we had to get up at 4am(!), to meet up at 5am with our guide Claudio López and our driver Miguel for our big day in Calakmul.
+
+We drove in the dark along the highway for about 45 minutes before turning off towards Calakmul. This is still a 60km drive to the archaelogical site. There's quite a bit of new development: the Tren Maya station and an associated big hotel along the road. It still feels very remote though.
+
+Claudio was an incredible birding guide. He'd notice something from the car, we'd all get out, and he'd locate these amazing birds. There were lots of Occelated Turkeys, some Keel-billed Toucans, a couple of Collared Aracaris, some Crested Guans, which were like tree dinosaurs. There was a Coati in the trees, which is also called a Tejon Rojo (red badger). At km 27 we stopped for a walk through the jungle and saw howler monkeys and spider monkeys. Claudio showed us where the _chicleros_ used to harvest chewing gum from the trees. Massive strangler figs and bromeliads.
+
+At almost 11 we got to the ruins, which occupy a huge site. At one point Claudio took me and G of the trail deep into the jungle in search of a Great Curassow.
+
+At the main plaza G and I climbed the smallest pyramid, which was the one the "rediscoverer" of the site first climbed, from which he saw the two big pyramids for which its modern name derives (Calakmul means something like "City of the Two Adjacent Pyramids").
+
+As we came down and were snacking a crazy roaring started and Claudio said "it's the jaguar!" We did actually jump but it was two groups of howler monkeys starting up a shouting contest right over our heads. It was incredibly loud and went on for ages — so long, in fact, that eventually people stopped being amazed and started being a bit annoyed. At one point a spider monkey swung across between them, impossibly agile.
+
+G and I climbed the two massive pyramids and said hello to Guatemala and El Mirador, lurking somewhere in the jungle about 40km away. Another group of tourists were waiting a long time at the foot of the pyramid for some of their party to come down, Claudio told them "they've probably been sacrificed", he thought this was very funny.
+
+I had wondered how busy the site would be, as it's quite famous. There were definitely people around in the main areas, but it never felt at all crowded, and we kept seeing the same few groups again and again.
+
+Claudio is Mayan, he learned Spanish as a second language, and his mum never learned Spanish at all. It was surprising to me how strong Mayan culture is here, and it's definitely part of the reason that Yucatán has such a rich and interesting culture of its own.
+
+Eventually we got back to the car and it was _¡vamonos chicas!_. We got back to the cabin at about 5pm. Thanks Claudio you were amazing.
+
+I'd been dreaming of pasta and sauce for some hours at this point. We had even found the salt by this time. Boiled the water, poured in the pasta and... it was infested with bugs. Curse you, Soriana! Luckily we had tortillas and _queso_ for the children, and A and I had buns with pasta sauce soup, which was better than it sounds.
+
+## Thursday
+
+We had a more relaxing start to things today, breakfast at Casa Ka'an with a couple of very slow-moving but hopeful _perros_, Blackie and something else.
+
+Then to Becán, where we experienced the rare _reverse tope canary_ on the way in. At Becán there was one group leaving just as we arrived, and another we met right at the end, but the rest of the time we had the site to ourselves. A Ferruginous Pygmy Owl sat on a branch by the first pyramid.
+
+G and I scrambled around a pyramid while E and A encountered a gray fox. E, G, and I climbed another pyramid, and there were three Turquoise-Browed Mot-Mots in the trees, which we watched for a while. Magic. In Yucatán these are called _pájaro reloj_, or "clock bird", and in Costa Rica they are called _pájaro bobo_, or "stupid bird", which is a bit mean.
+
+We found some leaf cutter ants and watched one cutting out its piece of leaf. It was sitting on the part it was cutting, like someone sawing off the branch they are sitting on. E discovered a new type of leaf cutter ant, the "shirker ant", that just hangs arond pretending it's about to start cutting some leaves.
+
+Because of the buggy pasta (curse you, Soriana!) we had to eat the tortillas the day before, so now we had no lunch. We visited the _abarrotes_ in Xpujil for more tortillas and frijoles.
+
+## ...
+
+grey fox
 carlos told us our names
