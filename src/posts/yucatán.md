@@ -27,7 +27,7 @@ Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Par
 
 ## Monday
 
-Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steven at Easy Way told us not to drive to Colombia. His car felt... loose, as if parts of it might come unattached, given enough vibration.
+Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steven at Easy Way told that we had unlimited mileage, "but don't go to Colombia". His car felt... loose, as if parts of it might come unattached, given enough vibration.
 
 Still, the Guardianes de los Manglares de Dzinintún didn't mind us being late, they were just hanging out. We peed in these extremely rustic toilets in very dilapidated palapas that were infested with giant iguanas, this will be important later on.
 
@@ -47,7 +47,7 @@ The señora serving the hotel breakfast was very excited to hear that we'd be go
 
 We actually had a long drive to Xpujil: there were two possible routes, the more direct one via Hopelchen, on tiny roads, and a longer one via Bacalar, that keeps to the bigger roads. On the advice of Anabel at Visit Calakmul, we took the longer route, although the other route did look interesting.
 
-Anyway: driving out of Mérida was a bit nerve-shredding, and we got lost for a while, but once things settled down it was reasonably fun. Good, straight, roads, polite drivers, beautiful countryside, interesting small towns. One of A's jobs was to watch for topes, and despite what people say, at least on this route the topes were really well marked and you'd have to be paying no attention in order to miss them. Still, it is helpful to have a _tope canary_: a car in front that you can watch to get an additional warning. Also of interest are _tope higglers_, who hang around at the roadside and take advantage of you slowing down to try to sell you coconuts or pineapples or... chopping boards?
+Anyway: driving out of Mérida was nerve-shredding, and we got lost for a while, but once things settled down it was reasonably fun. Good, straight, roads, polite drivers, beautiful countryside, interesting small towns. One of A's jobs was to watch for topes, and despite what people say, at least on this route the topes were really well marked and you'd have to be paying no attention in order to miss them. Still, it is helpful to have a _tope canary_: a car in front that you can watch to get an additional warning. Also of interest are _tope higglers_, who hang around at the roadside and take advantage of you slowing down to try to sell you coconuts or pineapples or... traffic cones?
 
 The drive was further enlivened by short but very intense rain showers, during which we could see almost nothing.
 
@@ -59,7 +59,7 @@ We stopped in José María Morelos for pees, and in Bacalar for Soriana pastries
 
 We drove in the dark along the highway for about 45 minutes before turning off towards Calakmul. This is still a 60km drive to the archaelogical site. There's quite a bit of new development: the Tren Maya station and an associated big hotel along the road. It still feels very remote though.
 
-Claudio was an incredible birding guide. He'd notice something from the car, we'd all get out, and he'd locate these amazing birds. There were lots of Occelated Turkeys, some Keel-billed Toucans, a couple of Collared Aracaris, some Crested Guans, which were like tree dinosaurs. There was a Coati in the trees, which is also called a Tejon Rojo (red badger). At km 27 we stopped for a walk through the jungle and saw howler monkeys and spider monkeys. Claudio showed us where the _chicleros_ used to harvest chewing gum from the trees. Massive strangler figs and bromeliads.
+Claudio was an incredible birding guide. He'd notice something from the car, we'd all get out, and he'd locate these amazing birds. There were lots of Ocellated Turkeys, some Keel-billed Toucans, a couple of Collared Aracaris, some Crested Guans, which were like tree dinosaurs. There was a Coati in the trees, which is also called a Tejon Rojo (red badger). At km 27 we stopped for a walk through the jungle and saw howler monkeys and spider monkeys. Claudio showed us where the _chicleros_ used to harvest chewing gum from the trees. Massive strangler figs and bromeliads.
 
 At almost 11 we got to the ruins, which occupy a huge site. At one point Claudio took me and G of the trail deep into the jungle in search of a Great Curassow.
 
@@ -67,7 +67,7 @@ At the main plaza G and I climbed the smallest pyramid, which was the one the "r
 
 As we came down and were snacking a crazy roaring started and Claudio said "it's the jaguar!" We did actually jump but it was two groups of howler monkeys starting up a shouting contest right over our heads. It was incredibly loud and went on for ages — so long, in fact, that eventually people stopped being amazed and started being a bit annoyed. At one point a spider monkey swung across between them, impossibly agile.
 
-G and I climbed the two massive pyramids and said hello to Guatemala and El Mirador, lurking somewhere in the jungle about 40km away. Another group of tourists were waiting a long time at the foot of the pyramid for some of their party to come down, Claudio told them "they've probably been sacrificed", he thought this was very funny.
+E, G, and I climbed the two massive pyramids and said hello to Guatemala and El Mirador, lurking somewhere in the jungle about 40km away. Another group of tourists were waiting a long time at the foot of the pyramid for some of their party to come down, Claudio told them "they've probably been sacrificed", he thought this was very funny.
 
 I had wondered how busy the site would be, as it's quite famous. There were definitely people around in the main areas, but it never felt at all crowded, and we kept seeing the same few groups again and again.
 
@@ -87,9 +87,42 @@ G and I scrambled around a pyramid while E and A encountered a gray fox. E, G, a
 
 We found some leaf cutter ants and watched one cutting out its piece of leaf. It was sitting on the part it was cutting, like someone sawing off the branch they are sitting on. E discovered a new type of leaf cutter ant, the "shirker ant", that just hangs arond pretending it's about to start cutting some leaves.
 
-Because of the buggy pasta (curse you, Soriana!) we had to eat the tortillas the day before, so now we had no lunch. We visited the _abarrotes_ in Xpujil for more tortillas and frijoles.
+Because of the buggy pasta (curse you, Soriana!) we had to eat the tortillas the day before, so now we had no lunch. We visited the _abarrotes_ in Xpujil for more tortillas and frijoles, ate it in the cabin, and lay around until supper time.
 
-## ...
+We went to Xtabay for supper, which had an interesting conception of "inside" (not inside at all), where we were a bit paranoid about mosquitos, and where the food options were not as extensive as we had expected. Still, it was food, and mostly cooked.
 
-grey fox
-carlos told us our names
+## Friday
+
+Today was for transferring to Bacalar for the third and final leg, but we wanted to visit Chicanná first. Breakfast at Casa Ka'an again. Blackie demonstrated his jamón dance in an effort to break down our resistance, and he succeeded! We also got to deploy more experimental Spanish with _¿podríamos dar nuestro jamón al perro?_
+
+There were no visitors at Chicanná at all, except for a Bat Falcon sitting next to the first building. Very peaceful, apart from the leaf blower guys. Chicanná is much smaller than Calakmul and Becán, but has much more elaborate decoration including the giant snake mouth entrance to one of the buildings.
+
+Then drove to Bacalar, found the hotel, ate rustic sandwiches in their lobby, which was patrolled by 2 cats, Sombra and Meserito. E, G, and I went to get a new memory card for E's camera, and by the time we came back, the room was ready. The children voted for pool-wallowing in the afternoon, so that's what happened, while A and I lounged.
+
+For supper we tried El Valiente, which was great, run by a very sweet man. I had a pambazo with potato and nopales.
+
+## Saturday
+
+Made a slow start, breakfast at the Emporio Cafe which looks like a real tourist place but was great, fantastic coffee, _un desayuno muy sabroso_, really nice _mesero_. Then back to the hotel and saddling up for the laguna, which was as lovely as advertised. Much wallowing ensued.
+
+I had a delightful nap on the hotel roof, then out again for supper, and this time we tried La oaxaqueña, which was OK, although the mesera was the only properly surly person we encountered the whole time we were there.
+
+## Sunday
+
+Last whole day. E and I got up horribly early to look at birds with Jacqueline from Active Nature Bacalar. We met Jacqueline and a few fellow birding tragics. Watched some parakeets tearing the beautiful flowers off a tree and throwing them on the ground. Such jerks. Also, among lots of other birds, saw the swifts that root in their well, a Barred Forest Falcon, and a Red-Lored Parrot.
+
+Back to the hotel to collect G and A, then back to the Emporio Cafe which was occupied by a huge group of very loud Americans. So it took ages for our food to come. Even so, we rescued their baby from the Hole of Death. Eventually we got our chilaquiles and pancakes, with extra coffee for the wait.
+
+The children voted for pool over laguna. We found a lovely katydid at the pool area.
+
+We tried to go back to El Valiente but it was closed, so we went back to La oaxaqueña, and this time the mesero was very nice, and we got much better food. I had the mole, A had the tlayuda again, and the children had tacos.
+
+On the way back through the square we bought a sombrero fridge magnet at G's insistence.
+
+## Monday
+
+Heading home. We had breakfast at the hotel, less said the better. On the road by 9.30 ish, rolling through Quintana Roo, stopping for pees in Jose María Morelos again. Nerves were shredded in Mérida, but we made it back to Steven by 1.30pm (we gained an hour crossing back into Yucatán state). Luz kindly looked after our bags while we went back to Sempere libros y café for lunch. We bought "Un Perro Libre" in the bookstore. We did a little shopping in Mérida, said goodbye (again) to the Plaza Grande, failed (again) to find las letras, and bought some t-shirts for the children.
+
+Then we went back to Luz to get our bags, and took a taxi to the airport. Carlos the lovely Aeroméxico check-in agent told us our Spanish names. A's is the same, only said in a more fancy way. In a horrifying aside, Guy Fieri made an appearance at the airport.
+
+CDMX was full of people drilling and hammering things, but we got on our flight back to YVR at 1.25 am, and emerged into the darkness, pouring rain, and bone-chilling cold at about 6.30 on Tuesday morning.
