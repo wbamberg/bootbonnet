@@ -19,13 +19,15 @@ Sunday morning is the Mérida BiciRuta, so we rented bikes and rode up and down 
 
 Again, by the time we were done, we were HOT, and this time decided to try baked goods. The Nuup Panadería had lovely people and lovely pastries, including chocolatines the size of your head and pan conchas. We bought some but still needed something savoury for lunch, and after wandering around melting for a bit found Sempere libros y café, who sold us cheese and ham sandwiches, and a load of bagels. We were revived a bit by ice cream from Pola Gelato, then it was back to the hotel for the aforesaid sandwiches and more pool-wallowing.
 
-In the evening we strolled down to the Plaza Grande, watched the parrots swirling around and yelling, saw the music and stalls, failed to find las letras (they had been apparently removed for maintenance). Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Parque de Santa Lucia for some rather excellent music before bed.
+In the evening we strolled down to the Plaza Grande, watched the parrots swirling around and shrieking, saw the music and stalls, failed to find las letras (they had been apparently removed for maintenance). On the way back, someone was giving a no-holds-barred karaoke performance of A-Ha's "Take On Me", from inside his shop but with the speaker out on the street, where a small but enthusiastic crowd had formed. Unfortunately by the time we got to the shop he had collapsed, either from emotion or sheer physical effort, and was slumped on the floor in a pool of sweat.
+
+Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Parque de Santa Lucia for some rather excellent music before bed.
 
 ## Monday
 
 Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steve at Easy Way told us not to drive to Colombia. His car felt... loose, as if parts of it might come unattached, given enough vibration.
 
-Still, the mangrove people (Guardianes de los Manglares de Dzinintún) didn't mind us being late, they were just hanging out. We peed in these extremely rustic toilets in very dilapidated palapas that were infested with giant iguanas, this will be important later on.
+Still, the Guardianes de los Manglares de Dzinintún didn't mind us being late, they were just hanging out. We peed in these extremely rustic toilets in very dilapidated palapas that were infested with giant iguanas, this will be important later on.
 
 Gliding through the mangroves was very peaceful. We saw an American Redstart, a Tricolored Heron, several pufferfish. Most excitingly a female crocodile guarding her babies. She was just lurking in the water looking menacing. Our guide told us that a few weeks ago someone was here with their dog in the canoe, and the dog jumped in to attack the baby crocs, and the daddy croc ate the dog. Scenes.
 
@@ -41,7 +43,6 @@ Back at the hotel, the children had a final wallow, then we had goblin mode supp
 
 The señora serving the hotel breakfast was very excited to hear that we'd be going to Campeche City today, and told us all about it.
 
-pastry tray, dirty trays
 shocks on ew compared to taxi
 tope higglers, tope canary, reverse tope, reverse tope canary
 jaguar, sacrifices
