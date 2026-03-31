@@ -7,11 +7,11 @@ We flew into Mérida via Mexico City, and brought [The Ambassador™](../ambassa
 
 ## Saturday
 
-Next day was for light exploring. Hotel breakfast was _incluido_, so we ate that, then wandered in the general direction of the Paseo de Montejo, where our mission was to try to buy a t-shirt from Tejon Rojo. Lots of tourist tat shops on the way, plus some shops selling traditional Yucatecan clothes, guayberas for the men and embroidered hipils for women.
+Next day was for light exploring. Hotel breakfast was _incluido_, so we ate that, then wandered in the general direction of the Paseo de Montejo, where our mission was to try to buy a t-shirt from Tejon Rojo. Lots of tourist tat shops on the way, plus some shops selling traditional Yucatecan clothes, [guayaberas](https://en.wikipedia.org/wiki/Guayabera) for the men and embroidered [hipils](https://yucatantoday.com/en/blog/the-hipil-what-it-is-how-to-wear-it-and-how-to-buy-it) for women.
 
 We met the local, and very very noisy, [Great-Tailed Grackles](https://ebird.org/species/grtgra), and explored the Parque Santa Lucia:
 
-Tejon Rojo was full of lovely stuff and an equally lovely man working there who was happy to chat. I bought a t-shirt featuring a [Turquoise-browed Motmot](https://ebird.org/species/tubmot1), and he told us a strange story about trying to rescue a lot of baby spiders of a deadly variety, without getting bitten.
+Tejon Rojo was full of lovely stuff and an equally lovely man working there who was happy to chat. I bought a t-shirt featuring a [Turquoise-browed Motmot](https://ebird.org/species/tubmot1), and he told us a strange story about trying to rescue a lot of baby spiders of a deadly variety, without getting bitten. Turquoise-browed Motmots are spectacular birds that are somewhat iconic in Yucatán: although they're not very rare, we weren't going to spend much time in areas where they are commonly seen, so I didn't think we would have much chance to see one.
 
 By that time it was HOT so we went to look for some lunch at Ramiro Cochina, which was nice, but not child-friendly food. Afterwards, we went back to the hotel and wallowed in the pool. The pool was covered with little square blue tiles which were starting to come off, and the children were diving to collect them. E promised that they were not in fact "encouraging" the tiles to come off. Then a huge thunderstorm started, so we sheltered in the hotel room for a couple of hours, and the children watched videos on the iPad.
 
@@ -19,11 +19,11 @@ Once the rain eased off we went out for pizza, where my pizza took ages to come,
 
 ## Sunday
 
-Sunday morning is the Mérida BiciRuta, so we rented bikes and rode up and down the Paseo Montejo. G and I had a dreadful tandem, A and E had some contraption like two bikes side-by-side, welded together, with a roof. And we clanked up and down. Good times. We learned _sombra_, a very useful word in Mérida.
+Sunday morning is the Mérida BiciRuta, so we rented bikes and rode up and down the Paseo de Montejo. G and I had a dreadful tandem, A and E had some contraption like two bikes side-by-side, welded together, with a roof. And we clanked up and down. Good times. We learned _sombra_, a very useful word in Mérida.
 
 ![Riding bikes on the Paseo de Montejo](/images/yucatan/merida-biciruta.jpeg)
 
-Again, by the time we were done, we were HOT, and this time decided to try baked goods. The Nuup Panadería had lovely people and lovely pastries, including chocolatines the size of your head and conchas. We bought some but still needed something savoury for lunch, and after wandering around melting for a bit found Sempere libros y café, who sold us cheese and ham sandwiches, and a load of bagels. We were revived a bit by ice cream from Pola Gelato, then it was back to the hotel for the aforesaid sandwiches and more pool-wallowing.
+By the time we were done, we were, again, HOT, and this time decided to try baked goods for lunch. The Nuup Panadería had lovely people and lovely pastries, including chocolatines the size of your head and [conchas](https://en.wikipedia.org/wiki/Concha). We bought some but still needed something savoury for lunch, and after wandering around melting for a bit found Sempere libros y café, which is a very peaceful combined bookstore and cafe hidden away upstairs, with kind people who understood the concept of a sandwich with jamón and cheddar and literally nothing else, and also sold us a load of bagels. On the way back to the hotel we stopped for ice cream at Pola Gelato, then it was time for more afternoon pool-wallowing.
 
 In the evening we strolled down to the Plaza Grande, watched the parrots swirling around and shrieking, saw the music and stalls, failed to find las letras (they had been apparently removed for maintenance). On the way back, someone was giving a no-holds-barred karaoke performance of A-Ha's "Take On Me", from inside his shop but with the speaker out on the street, where a small but enthusiastic crowd had formed. Unfortunately by the time we got to the shop he had collapsed, either from emotion or sheer physical effort, and was slumped on the floor in a pool of sweat.
 
@@ -53,13 +53,9 @@ Back at the hotel, the children had a final wallow, then we had goblin mode supp
 
 ![Goodbye to the Plaza Grande](/images/yucatan/goodbye-to-plaza.jpeg)
 
-A man selling little baskets was very excited to hear that we'd be going to Campeche City the next day.
-
 ## Tuesday
 
-The señora serving the hotel breakfast was very excited to hear that we'd be going to Campeche City today, and told us all about it.
-
-We actually had a long drive to Xpujil: there were two possible routes, the more direct one via Hopelchen, on tiny roads, and a longer one via Bacalar, that keeps to the bigger roads. On the advice of Anabel at Visit Calakmul, we took the longer route, although the other route did look interesting.
+We had a long drive to Xpujil: there were two possible routes, the more direct one via Hopelchen, on tiny roads, and a longer one via Bacalar, that keeps to the bigger roads. On the advice of Anabel at Visit Calakmul, we took the longer route, although the other route did look interesting.
 
 Anyway: driving out of Mérida was nerve-shredding, and we got lost for a while, but once things settled down it was reasonably fun. Good, straight, roads, polite drivers, beautiful countryside, interesting small towns. One of A's jobs was to watch for topes, and despite what people say, at least on this route the topes were really well marked and you'd have to be paying no attention in order to miss them. Still, it is helpful to have a _tope canary_: a car in front that you can watch to get an additional warning. Also of interest are _tope higglers_, who hang around at the roadside and take advantage of you slowing down to try to sell you coconuts or pineapples or... traffic cones?
 
@@ -71,7 +67,7 @@ We stopped in José María Morelos for pees, and in Bacalar for Soriana pastries
 
 ...because we had to get up at 4am(!), to meet up at 5am with our guide Claudio López and our driver Miguel for our big day in Calakmul.
 
-We drove in the dark along the highway for about 45 minutes before turning off towards Calakmul. This is still a 60km drive to the archaelogical site. There's quite a bit of new development: the Tren Maya station and an associated big hotel along the road. It still feels very remote though.
+Miguel drove us in the dark along the highway for about 45 minutes before turning off towards Calakmul. This is still a 60km drive to the archaelogical site. There's quite a bit of new development, with the Tren Maya station and an associated big hotel along the road. It still feels very remote though.
 
 Claudio was an incredible birding guide. He'd notice something from the car, we'd all get out, and he'd locate these amazing birds. There were lots of Ocellated Turkeys, some Keel-billed Toucans, a couple of Collared Aracaris, some Crested Guans, which were like tree dinosaurs.
 
@@ -81,11 +77,11 @@ There was even a Tejon Rojo (aka Coati) in the trees.
 
 ![A Tejon Rojo](/images/yucatan/tejon-rojo.jpeg)
 
-At km 27 we stopped for a walk through the jungle and saw howler monkeys and spider monkeys. Claudio showed us where the _chicleros_ used to harvest chewing gum from the trees. Massive strangler figs and bromeliads.
+At km 27 we stopped for a walk through the jungle and saw howler monkeys and spider monkeys, and more birds, including a [Ferruginous Pygmy-Owl](https://ebird.org/species/fepowl). Claudio showed us where the _chicleros_ used to harvest chewing gum from the trees. Massive strangler figs and bromeliads.
 
 At almost 11 we got to the ruins, which occupy a huge site. At one point Claudio took me and G off the trail deep into the jungle in search of a Great Curassow.
 
-At the main plaza E, G, and I climbed the smallest pyramid, which was the one the "rediscoverer" of the site first climbed, from which he saw the two big pyramids for which its modern name derives (Calakmul means something like "City of the Two Adjacent Pyramids").
+At the main plaza E, G, and I climbed the smallest pyramid, which was the one the "rediscoverer" of the site first climbed, from which he saw the two big pyramids from which its modern name derives (Calakmul means something like "City of the Two Adjacent Pyramids").
 
 As we came down and were snacking a crazy roaring started and Claudio said "it's the jaguar!" We did actually jump but it was two groups of howler monkeys starting up a shouting contest right over our heads. It was incredibly loud and went on for ages — so long, in fact, that eventually people stopped being amazed and started being a bit annoyed. At one point a spider monkey swung across between them, impossibly agile.
 
@@ -103,13 +99,13 @@ Claudio is Mayan, he learned Spanish as a second language, and his mum never lea
 
 Eventually we got back to the car and it was _¡vamonos chicas!_. We got back to the cabin at about 5pm. Thanks Claudio you were amazing.
 
-I'd been dreaming of pasta and sauce for some hours at this point. We had even found the salt by this time. Boiled the water, poured in the pasta and... it was infested with bugs. Curse you, Soriana! Luckily we had tortillas and _queso_ for the children, and A and I had buns with pasta sauce soup, which was better than it sounds.
+I'd been dreaming of pasta and sauce for some hours at this point. We had even found the salt by this time. Boiled the water, poured in the pasta and... it was infested with bugs. Curse you, Soriana! Luckily we had tortillas and _queso_ for the children, and A and I had buns with pasta sauce soup, which is made by adding water to pasta sauce, and which was better than it sounds.
 
 ## Thursday
 
-We had a more relaxing start to things today, breakfast at Casa Ka'an with a couple of very slow-moving but hopeful _perros_, Blackie and something else.
+We had a more relaxing start to things today, breakfast at Casa Ka'an with a couple of very slow-moving but hopeful _perros_, Blackie and Clucha.
 
-Then to Becán, where we experienced the rare _reverse tope canary_ on the way in. At Becán there was one group leaving just as we arrived, and another we met right at the end, but the rest of the time we had the site to ourselves. A Ferruginous Pygmy Owl sat on a branch by the first pyramid.
+Then to Becán, where we experienced the rare _reverse tope canary_ on the way in. At Becán there was one group leaving just as we arrived, and another we met right at the end, but the rest of the time we had the site to ourselves. A Ferruginous Pygmy-Owl sat on a branch by the first pyramid.
 
 ![G on a pyramid at Becán](/images/yucatan/g-becan.jpeg)
 
@@ -129,11 +125,17 @@ Today was for transferring to Bacalar for the third and final leg, but we wanted
 
 ![Blackie the perro asking for jamón](/images/yucatan/perro-jamon.jpeg)
 
+And yes, Clucha got jamón as well.
+
 There were no visitors at Chicanná at all, except for a Bat Falcon sitting next to the first building.
 
 ![A Bat Falcon at Chicanná](/images/yucatan/bat-falcon.jpeg)
 
-Very peaceful, apart from the leaf blower guys. Chicanná is much smaller than Calakmul and Becán, but has much more elaborate decoration including the giant snake mouth entrance to one of the buildings.
+Very peaceful, apart from the leaf blower guys. Chicanná is much smaller than Calakmul and Becán, but has much more elaborate decoration.
+
+![The people at Chicanná](/images/yucatan/chicanna.jpeg)
+
+It's most famous for the giant snake mouth entrance to one of the buildings.
 
 ![Chicanná snake mouth](/images/yucatan/chicanna-mouth.jpeg)
 
