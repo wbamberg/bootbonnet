@@ -11,9 +11,15 @@ Next day was for light exploring. Hotel breakfast was _incluido_, so we ate that
 
 We met the local, and very very noisy, [Great-Tailed Grackles](https://ebird.org/species/grtgra), and explored the Parque Santa Lucia:
 
+![Big chairs at the Parque Santa Lucia](/images/yucatan/merida-chairs.jpeg)
+
 Tejon Rojo was full of lovely stuff and an equally lovely man working there who was happy to chat. I bought a t-shirt featuring a [Turquoise-browed Motmot](https://ebird.org/species/tubmot1), and he told us a strange story about trying to rescue a lot of baby spiders of a deadly variety, without getting bitten. Turquoise-browed Motmots are spectacular birds that are somewhat iconic in Yucatán: although they're not very rare, we weren't going to spend much time in areas where they are commonly seen, so I didn't think we would have much chance to see one.
 
-By that time it was HOT so we went to look for some lunch at Ramiro Cochina, which was nice, but not child-friendly food. Afterwards, we went back to the hotel and wallowed in the pool. The pool was covered with little square blue tiles which were starting to come off, and the children were diving to collect them. E promised that they were not in fact "encouraging" the tiles to come off. Then a huge thunderstorm started, so we sheltered in the hotel room for a couple of hours, and the children watched videos on the iPad.
+By that time it was HOT so we went to look for some lunch at Ramiro Cochina, which was nice, but not child-friendly food. Afterwards, we went back to the hotel and wallowed in the pool.
+
+![Pool at Luz en Yucatan](/images/yucatan/luz-pool.jpeg)
+
+The pool was covered with little square blue tiles which were starting to come off, and the children were diving to collect them. E promised that they were not in fact "encouraging" the tiles to come off. Then a huge thunderstorm started, so we sheltered in the hotel room for a couple of hours, and the children watched videos on the iPad.
 
 Once the rain eased off we went out for pizza, where my pizza took ages to come, then as soon as it did, the AC dumped a load of water all over it. The waiter was extremely apologetic and called me _caballero_. Afterwards we went to the Noche Mexicana, for some dancing and singing (that is, watching other people dancing and singing).
 
@@ -23,7 +29,7 @@ Sunday morning is the Mérida BiciRuta, so we rented bikes and rode up and down 
 
 ![Riding bikes on the Paseo de Montejo](/images/yucatan/merida-biciruta.jpeg)
 
-By the time we were done, we were, again, HOT, and this time decided to try baked goods for lunch. The Nuup Panadería had lovely people and lovely pastries, including chocolatines the size of your head and [conchas](https://en.wikipedia.org/wiki/Concha). We bought some but still needed something savoury for lunch, and after wandering around melting for a bit found Sempere libros y café, which is a very peaceful combined bookstore and cafe hidden away upstairs, with kind people who understood the concept of a sandwich with jamón and cheddar and literally nothing else, and also sold us a load of bagels. On the way back to the hotel we stopped for ice cream at Pola Gelato, then it was time for more afternoon pool-wallowing.
+By the time we were done, we were, again, HOT, and this time decided to try baked goods for lunch, rather than a restaurant. The Nuup Panadería had lovely people and lovely pastries, including chocolatines the size of your head and [conchas](https://en.wikipedia.org/wiki/Concha). We bought some but still needed something savoury for lunch, and after wandering around melting for a bit found Sempere libros y café, which is a very peaceful combined bookstore and cafe hidden away upstairs, with kind people who understood the concept of a sandwich with jamón and cheddar and literally nothing else, and also sold us a load of bagels. On the way back to the hotel we stopped for ice cream at Pola Gelato, then it was time for more afternoon pool-wallowing.
 
 In the evening we strolled down to the Plaza Grande, watched the parrots swirling around and shrieking, saw the music and stalls, failed to find las letras (they had been apparently removed for maintenance). On the way back, someone was giving a no-holds-barred karaoke performance of A-Ha's "Take On Me", from inside his shop but with the speaker out on the street, where a small but enthusiastic crowd had formed. Unfortunately by the time we got to the shop he had collapsed, either from emotion or sheer physical effort, and was slumped on the floor in a pool of sweat.
 
@@ -35,7 +41,11 @@ Celestún day and paddling through the mangroves. We were late getting there bec
 
 Still, the Guardianes de los Manglares de Dzinintún didn't mind us being late, they were just hanging out. We peed in these extremely rustic toilets in very dilapidated palapas that were infested with giant iguanas, this will be important later on.
 
-Gliding through the mangroves was very peaceful. We saw an American Redstart, a Tricolored Heron, several pufferfish. Most excitingly, a female crocodile guarding her babies. She was just lurking in the water looking menacing. Our guide told us that a few weeks ago someone was here with their dog in the canoe, and the dog jumped in to attack the baby crocs, and the daddy croc ate the dog. Scenes.
+Gliding through the mangroves was very peaceful.
+
+![Out of the mangroves](/images/yucatan/mangroves.jpeg)
+
+We saw an American Redstart, a Tricolored Heron, several pufferfish. Most excitingly, a female crocodile guarding her babies. She was just lurking in the water looking menacing. Our guide told us that a few weeks ago someone was here with their dog in the canoe, and the dog jumped in to attack the baby crocs, and the daddy croc ate the dog. Scenes.
 
 ![A baby crocodile](/images/yucatan/baby-croc.jpeg)
 
@@ -47,7 +57,7 @@ After the tour we ate pastries from Nuup while some hopeful _perros_ hung around
 
 Then E went for a pee and while she was peeing a giant iguana crashed through the roof of the palapa.
 
-Because we made a late start, we decided to head straight back to Mérida, for a big shop at the Soriana, in preparation for phase 2: Xpujil, in Campeche state. Everyone we talked to about where we were going next thought we meant Campeche City, and in the end I gave up and pretended that was actually where we were going. Anyway, we bought a ton of food at Soriana. There was a confusing system for buying pastries where you had to fish them out of the cabinets and put them on a tray, having first chosen the least grungy tray, then take the tray to an employee who puts them into paper bags according to some obscure criteria. We also bought enough pasta for 2 nights. This will be important later on.
+Because we made a late start, we decided to head straight back to Mérida, for a big shop at the Soriana, in preparation for phase 2 of the vacation: Xpujil, in Campeche state. Everyone we talked to about where we were going next thought we meant Campeche City, and in the end I gave up and pretended that was actually where we were going. Anyway, we bought a ton of food at Soriana. There was a confusing system for buying pastries where you had to fish them out of the cabinets and put them on a tray, having first chosen the least grungy tray, then take the tray to an employee who puts them into paper bags according to some obscure criteria. We also bought enough pasta for 2 nights. This will be important later on.
 
 Back at the hotel, the children had a final wallow, then we had goblin mode supper, a delightful mélange of pot noodles, instant mac and cheese, and bagels. Then back out for choco frappés from Ki'Xocolatl, and said goodbye to the Plaza Grande before bed.
 
@@ -61,7 +71,11 @@ Anyway: driving out of Mérida was nerve-shredding, and we got lost for a while,
 
 The drive was further enlivened by short but very intense rain showers, during which we could see almost nothing.
 
-We stopped in José María Morelos for pees, and in Bacalar for Soriana pastries, and got to Casa Ka'an at about 5.30. The cabin was clean, spacious, and comfortable. Pasta for supper: we couldn't find any salt, and E complained righteously. We had an early night...
+We stopped in José María Morelos for pees, and in Bacalar for Soriana pastries, and got to Casa Ka'an at about 5.30.
+
+![Bienvenidos a Campeche](/images/yucatan/bienvenidos-a-campeche.jpeg)
+
+The cabin was clean, spacious, and comfortable. Pasta for supper: we couldn't find any salt, and E complained righteously. We had an early night...
 
 ## Wednesday
 
@@ -69,7 +83,11 @@ We stopped in José María Morelos for pees, and in Bacalar for Soriana pastries
 
 Miguel drove us in the dark along the highway for about 45 minutes before turning off towards Calakmul. This is still a 60km drive to the archaelogical site. There's quite a bit of new development, with the Tren Maya station and an associated big hotel along the road. It still feels very remote though.
 
-Claudio was an incredible birding guide. He'd notice something from the car, we'd all get out, and he'd locate these amazing birds. There were lots of Ocellated Turkeys, some Keel-billed Toucans, a couple of Collared Aracaris, some Crested Guans, which were like tree dinosaurs.
+Claudio was an incredible birding guide. He'd notice something from the car, we'd all get out, and he'd locate these amazing birds. There were lots of [Ocellated Turkeys](https://ebird.org/species/ocetur1):
+
+![An Ocellated Turkey](/images/yucatan/ocellated-turkey.jpeg)
+
+There were some [Keel-billed Toucans](https://ebird.org/species/kebtou1)!
 
 ![A Keel-billed Toucan](/images/yucatan/keel-billed-toucan.jpeg)
 
@@ -85,9 +103,11 @@ At the main plaza E, G, and I climbed the smallest pyramid, which was the one th
 
 As we came down and were snacking a crazy roaring started and Claudio said "it's the jaguar!" We did actually jump but it was two groups of howler monkeys starting up a shouting contest right over our heads. It was incredibly loud and went on for ages — so long, in fact, that eventually people stopped being amazed and started being a bit annoyed. At one point a spider monkey swung across between them, impossibly agile.
 
+![On Structure 2 at Calakmul](/images/yucatan/calakmul-2-from-the-bottom.jpeg)
+
 G and I climbed the two massive pyramids and said hello to Guatemala and El Mirador, lurking somewhere in the jungle about 40km away.
 
-![On Structure 2 at Calakmul](/images/yucatan/on-calakmul-2.jpeg)
+![On Structure 2 at Calakmul](/images/yucatan/calakmul-2-from-the-top.jpeg)
 
 Another group of tourists were waiting a long time at the foot of the pyramid for some of their party to come down, Claudio told them "they've probably been sacrificed", he thought this was very funny.
 
@@ -151,13 +171,23 @@ Back at the hotel we went up on the roof to see the stars, and the children foun
 
 ## Saturday
 
-We made a slow start, breakfast at the Emporio Cafe which looks like a real tourist place but was great, fantastic coffee, _un desayuno muy sabroso_, really nice _mesero_. Then back to the hotel and saddling up for the laguna, which was as lovely as advertised. Much wallowing ensued.
+We made a slow start, breakfast at the Emporio Cafe which looks like a real tourist place but was great, fantastic coffee, _un desayuno muy sabroso_, really nice _mesero_. Then back to the hotel and saddling up for the laguna, which was as lovely as advertised.
+
+![Laguna from the boardwalk](/images/yucatan/laguna-boardwalk.jpeg)
+
+Much wallowing ensued.
+
+![Wallowing in the laguna](/images/yucatan/laguna-splash.jpeg)
 
 I had a delightful nap on the hotel roof, then we were out again for supper, and this time we tried La oaxaqueña, which was OK, although the _mesera_ was the only properly surly person we encountered the whole time we were there.
 
 ## Sunday
 
-Last whole day. E and I got up horribly early to look at birds with Jacqueline from Active Nature Bacalar. We met Jacqueline and a few fellow birding tragics. Watched some parakeets tearing the beautiful flowers off a tree and throwing them on the ground. Such jerks. Also, among lots of other birds, saw the swifts that roost in their well, a Barred Forest Falcon, and a Red-Lored Parrot.
+Last whole day. E and I got up horribly early to look at birds with Jacqueline from Active Nature Bacalar. We met Jacqueline and a few fellow birding tragics. Watched some parakeets tearing the beautiful flowers off a tree and throwing them on the ground.
+
+![An Olive-throated Parakeet](/images/yucatan/olive-throated-parakeet.jpeg)
+
+Such jerks. Also, among lots of other birds, saw the swifts that roost in their well, a Barred Forest Falcon, and a Red-Lored Parrot.
 
 Back to the hotel to collect G and A, then back to the Emporio Cafe which was occupied by a huge group of very loud Americans. So it took ages for our food to come. Even so, we rescued their baby from the Hole of Death. Eventually we got our chilaquiles and pancakes, with extra coffee for the wait.
 
@@ -171,9 +201,13 @@ On the way back through the square we bought a sombrero fridge magnet at G's rec
 
 ## Monday
 
-Heading home. We had breakfast at the hotel, less said the better. On the road by 9.30 ish, rolling through Quintana Roo, stopping for pees in Jose María Morelos again. Nerves were shredded in Mérida, but we made it back to Steven by 1.30pm (we gained an hour crossing back into Yucatán state). Luz kindly looked after our bags while we went back to Sempere libros y café for lunch. We bought "Un Perro Libre" in the bookstore. We said goodbye (again) to the Plaza Grande, failed (again) to find las letras, and bought some t-shirts for the children.
+Heading home. We had breakfast at the hotel, which was a definite step down from the Emporio Cafe. The children found a frog in the garden, and we shepherded (frogherded?) it into the undergrowth while strategically getting ourselves in between it and Sombra. We were on the road by 9.30 ish, rolling through Quintana Roo, stopping for pees in Jose María Morelos again.
 
-Then we went back to Luz to get our bags, and took a taxi to the airport. Carlos the lovely Aeroméxico check-in agent told us our Spanish names. A's is the same, only said in a more fancy way. In a horrifying aside, Guy Fieri made an appearance at the airport.
+![Back through Jose María Morelos](/images/yucatan/jose-maria-morelos.jpeg)
+
+Nerves were shredded in the Mérida traffic, but we made it back to Steven by 1.30pm (we gained an hour crossing back into Yucatán state). Luz kindly looked after our bags while we went back to Sempere libros y café for lunch. We bought "Un Perro Libre" in the bookstore. We said goodbye (again) to the Plaza Grande, and the children bought some t-shirts.
+
+Then we went back to Luz to get our bags, and took a taxi to the airport. Carlos the lovely Aeroméxico check-in agent, who was wearing some very enviable axolotl pins, told us our Spanish names. A's is the same, only said in a more fancy way. In a horrifying aside, Guy Fieri made an appearance at the airport.
 
 ![The horrifying appearance of Fieri in Merida](/images/yucatan/fieri-in-merida.jpeg)
 
