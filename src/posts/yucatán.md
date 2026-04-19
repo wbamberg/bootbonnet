@@ -1,7 +1,22 @@
 ---
 title: Yucatán
-date: '2026-03-25'
+date: '2026-04-06'
 ---
+
+## Prologue
+
+We went to see a "travel consultant" to see what kind of vaccinations we ought to have before our trip.
+
+The consultant said: "you should all have Hep A, but I don't usually recommend Typhoid, depending on where you are going. Are you staying in tourist areas?"
+
+**Me**: "...maybe? I'm not sure what counts as a tourist area".<br>
+**Consultant**: "let's have a look at the map". (Opens a map of Yucatán on her computer.)<br>
+**Me**: "what's that area all coloured red?"<br>
+**Consultant**: "that's where there is malaria."<br>
+**Me**: "that's where we're going."<br>
+**Consultant**: "I'll just give you everything, then."<br>
+
+## Friday
 
 We flew into Mérida via Mexico City, and brought [The Ambassador™](../ambassador) to eat in Mexico City airport (CDMX), so as to avoid the apparently horrible food options there. This meant I got an early outing for my experimental Spanish, explaining to the people that _tenemos un poco de comida, y no sabemos si esta permitido_ or something. Anyway we had a bad-tempered Ambo there, but got to Mérida by 8pm, and had a fun taxi ride with a chatty driver. Arrived at Luz en Yucatán, slurped life-giving pot noodles in the hotel room, and went to bed.
 
@@ -191,7 +206,11 @@ Such jerks. Also, among lots of other birds, saw the swifts that roost in their 
 
 Back to the hotel to collect G and A, then back to the Emporio Cafe which was occupied by a huge group of very loud Americans. So it took ages for our food to come. Even so, we rescued their baby from the Hole of Death. Eventually we got our chilaquiles and pancakes, with extra coffee for the wait.
 
-The children voted for pool over laguna. We found a lovely katydid at the pool area.
+The children voted for pool over laguna.
+
+![Pool at Casa Chukum](/images/yucatan/chukum-pool.jpeg)
+
+We found a lovely katydid at the pool area.
 
 ![A katydid at the pool](/images/yucatan/pool-katydid.jpeg)
 
