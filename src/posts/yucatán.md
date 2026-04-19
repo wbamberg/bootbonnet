@@ -3,8 +3,6 @@ title: Yucatán
 date: '2026-04-06'
 ---
 
-## Prologue
-
 We went to see a "travel consultant" to see what kind of vaccinations we ought to have before our trip.
 
 The consultant said: "you should all have Hep A, but I don't usually recommend Typhoid, depending on where you are going. Are you staying in tourist areas?"
