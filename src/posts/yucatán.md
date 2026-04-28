@@ -48,6 +48,10 @@ In the evening we strolled down to the Plaza Grande, watched the parrots swirlin
 
 Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Parque de Santa Lucia for some fantastic music before bed.
 
+<video controls width="250">
+  <source src="/images/yucatan/merida-music.mov">
+</video>
+
 ## Monday
 
 Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steven at Easy Way told that we had unlimited mileage, "but don't go to Colombia". His car felt... loose, as if parts of it might come unattached, given enough vibration.
