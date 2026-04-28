@@ -50,7 +50,7 @@ A. wisely points out that "Take On Me" is not to be underestimated as a karaoke 
 
 ![One does not simply sing "Take on me"](/images/yucatan/take-on-me.jpg)
 
-Then a long walk to Alma Piedra for a very chill supper, and a stop at Parque de Santa Lucia for some fantastic music before bed.
+After this, we had a long walk to Alma Piedra for a very chill supper, and a stop at Parque de Santa Lucia for some fantastic music before bed.
 
 <video controls width="250">
   <source src="/images/yucatan/merida-music.mov">
