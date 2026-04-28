@@ -50,7 +50,7 @@ A. wisely points out that "Take On Me" is not to be underestimated as a karaoke 
 
 ![One does not simply sing "Take on me"](/images/yucatan/take-on-me.jpg)
 
-Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Parque de Santa Lucia for some fantastic music before bed.
+Then a long walk to Alma Piedra for a very chill supper, and a stop at Parque de Santa Lucia for some fantastic music before bed.
 
 <video controls width="250">
   <source src="/images/yucatan/merida-music.mov">
@@ -58,7 +58,7 @@ Then a long walk to Alma Piedra for a very chill supper, and a brief stop at Par
 
 ## Monday
 
-Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steven at Easy Way told that we had unlimited mileage, "but don't go to Colombia". His car felt... loose, as if parts of it might come unattached, given enough vibration.
+Celestún day and paddling through the mangroves. We were late getting there because Easy Way Car Rental does not in fact open at 7am as advertised, more like 9.30. Steven at Easy Way told us that we had unlimited mileage, "but don't go to Colombia". His car felt... loose, as if parts of it might come unattached, given enough vibration.
 
 Still, the Guardianes de los Manglares de Dzinintún didn't mind us being late, they were just hanging out. We peed in these extremely rustic toilets in very dilapidated palapas that were infested with giant iguanas, this will be important later on.
 
@@ -88,7 +88,7 @@ Back at the hotel, the children had a final wallow, then we had goblin mode supp
 
 We had a long drive to Xpujil: there were two possible routes, the more direct one via Hopelchen, on tiny roads, and a longer one via Bacalar, that keeps to the bigger roads. On the advice of Anabel at Visit Calakmul, we took the longer route, although the other route did look interesting.
 
-Anyway: driving out of Mérida was nerve-shredding, and we got lost for a while, but once things settled down it was reasonably fun. Good, straight, roads, polite drivers, beautiful countryside, interesting small towns. One of A's jobs was to watch for topes, and despite what people say, at least on this route the topes were really well marked and you'd have to be paying no attention in order to miss them. Still, it is helpful to have a _tope canary_: a car in front that you can watch to get an additional warning. Also of interest are _tope higglers_, who hang around at the roadside and take advantage of you slowing down to try to sell you coconuts or pineapples or... traffic cones?
+Anyway: driving out of Mérida was nerve-shredding, and we got lost for a while, but once things settled down it was reasonably fun. Good straight roads, polite drivers, beautiful countryside, interesting small towns. One of A's jobs was to watch for topes, and despite what people say, at least on this route the topes were really well marked and you'd have to be paying no attention in order to miss them. Still, it is helpful to have a _tope canary_: a car in front that you can watch to get an additional warning. Also of interest are _tope higglers_, who hang around at the roadside and take advantage of you slowing down to try to sell you coconuts or pineapples or... traffic cones?
 
 The drive was further enlivened by short but very intense rain showers, during which we could see almost nothing.
 
@@ -116,7 +116,9 @@ There was even a Tejon Rojo (aka Coati) in the trees.
 
 ![A Tejon Rojo](/images/yucatan/tejon-rojo.jpeg)
 
-At km 27 we stopped for a walk through the jungle and saw howler monkeys and spider monkeys, and more birds, including a [Ferruginous Pygmy-Owl](https://ebird.org/species/fepowl). Claudio showed us where the _chicleros_ used to harvest chewing gum from the trees. Massive strangler figs and bromeliads.
+At km 27 we stopped for a walk through the jungle and saw howler monkeys and spider monkeys, and more birds, including a [Ferruginous Pygmy-Owl](https://ebird.org/species/fepowl). Claudio showed us where the _chicleros_ used to harvest chewing gum from the trees. Massive strangler figs and bromeliads, and a crocodile-infested swamp.
+
+![Beware of the Crocodile sign](/images/yucatan/cuidado-cocodrilo.jpeg)
 
 At almost 11 we got to the ruins, which occupy a huge site. At one point Claudio took me and G off the trail deep into the jungle in search of a Great Curassow.
 
