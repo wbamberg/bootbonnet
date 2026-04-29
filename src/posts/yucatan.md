@@ -130,7 +130,7 @@ As we came down and were snacking a crazy roaring started and Claudio said "it's
 
 ![On Structure 2 at Calakmul](/images/yucatan/calakmul-2-from-the-bottom.jpeg)
 
-G and I climbed the two massive pyramids and said hello to Guatemala and El Mirador, lurking somewhere in the jungle about 40km away.
+G and I climbed the two massive pyramids and said hello to Guatemala and [El Mirador](https://en.wikipedia.org/wiki/El_Mirador), lurking somewhere in the jungle about 40km away.
 
 ![On Structure 2 at Calakmul](/images/yucatan/calakmul-2-from-the-top.jpeg)
 
