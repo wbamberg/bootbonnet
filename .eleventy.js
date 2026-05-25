@@ -34,7 +34,6 @@ module.exports = function(config) {
   config.addPassthroughCopy('src/admin/config.yml');
   config.addPassthroughCopy('src/admin/previews.js');
   config.addPassthroughCopy('node_modules/nunjucks/browser/nunjucks-slim.js');
-  config.addPassthroughCopy('src/robots.txt');
   config.addPassthroughCopy('src/js/oneko/oneko.gif');
 
   const now = new Date();
